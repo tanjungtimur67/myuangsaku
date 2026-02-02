@@ -1,0 +1,2 @@
+# myuangsaku
+Entek lek duitku:(
